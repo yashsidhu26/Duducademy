@@ -1,1 +1,1 @@
-[Click Here to visit site](https://drakedrac.github.io/Duducademy/)
+[Click Here to visit site](https://yashsidhu26.github.io/Duducademy/)
